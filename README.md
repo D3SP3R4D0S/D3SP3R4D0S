@@ -1,7 +1,7 @@
 # D3SP3R4D0S
 
 <aside>
-🍺 My profile does not means beer 🍺
+This account does not means beer you think 🍺
 </aside>
 <div>
 Working with
